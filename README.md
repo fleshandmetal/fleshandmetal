@@ -1,7 +1,11 @@
 <div style="line-height: 2px;" align="center">
+  <img src="https://gabestash.neocities.org/dividers/monochrome/mono109.gif"><br>
+  <br>
   <b>SVET</b>
 <p align="center">
   19 he/him
+  <br>
+  17+ to befriend, 16 and under can interact casually
   <br>
   <br>
   <img src="https://adriansblinkiecollection.neocities.org/y39.gif" alt="wiki"><img src="https://adriansblinkiecollection.neocities.org/x46.gif"><img src="https://adriansblinkiecollection.neocities.org/y44.gif"><br>
