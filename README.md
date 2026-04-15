@@ -1,7 +1,7 @@
 <div style="line-height: 2px;" align="center">
   <img src="https://gabestash.neocities.org/dividers/monochrome/mono109.gif"><br>
   <br>
-  <b>SVET</b><br>
+  <b>RORY</b><br>
   or kip
 <p align="center">
   19 he/him
