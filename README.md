@@ -7,7 +7,7 @@
   19 he/him
   <br>
   17+ to befriend, 16 and under can interact casually<br>
-  usually off tab doing whatever, whisper me to get my attention<br>
+  usually off tab doing whatever, whisper me to get my attention
   <br>
   <br>
   <img src="https://adriansblinkiecollection.neocities.org/y39.gif" alt="wiki"><img src="https://adriansblinkiecollection.neocities.org/x46.gif"><img src="https://adriansblinkiecollection.neocities.org/y44.gif"><br>
