@@ -8,7 +8,6 @@
   <br>
   17+ to befriend, 16 and under can interact casually<br>
   usually off tab doing whatever, whisper me to get my attention<br>
-  while i dont have a dni i would LOVE for labgerm supporters and proshippers (or anything along those lines, dont get smart with me.) to stay clear of me. 
   <br>
   <br>
   <img src="https://adriansblinkiecollection.neocities.org/y39.gif" alt="wiki"><img src="https://adriansblinkiecollection.neocities.org/x46.gif"><img src="https://adriansblinkiecollection.neocities.org/y44.gif"><br>
